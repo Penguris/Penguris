@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Penguris, I'd rather be Pengur, but it was taken, it is what it is  
+- 👀 I’m interested in... mainly games, STALKER series, Rainbow Six, ETS2, lots of titles 
+- 🌱 I’m currently learning, yeah that's it
+- 📫 How to reach me for now i would say you can mail me to pingwinalt@gmail.com
+- I cannot code almost at all, Im not into coding
